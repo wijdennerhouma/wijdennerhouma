@@ -7,6 +7,7 @@
 💞️ Je suis ouverte à la collaboration sur des projets liés au génie logiciel, au big data ou à l'ingénierie des données.
 
 📫 Vous pouvez me contacter à 📧 📩 wijdenrh12@gmail.com.
+
 📍Follow me on X (Twitter)🪐🪐  @wijden_rhouma
 
 <!---
