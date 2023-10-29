@@ -6,7 +6,8 @@
 
 💞️ Je suis ouverte à la collaboration sur des projets liés au génie logiciel, au big data ou à l'ingénierie des données.
 
-📫 Vous pouvez me contacter à wijdenrh12@gmail.com.
+📫 Vous pouvez me contacter à 📧 📩 wijdenrh12@gmail.com.
+📍Follow me on X (Twitter)🪐🪐  @wijden_rhouma
 
 <!---
 wijdennerhouma/wijdennerhouma is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
